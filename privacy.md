@@ -55,6 +55,6 @@ We may update this Privacy Policy from time to time. The latest version will alw
 
 ## 8. Contact
 
-Privacy questions and requests can be sent to: **[CONTACT — add an email address or support server invite]**
+Privacy questions and requests can be sent to: **SERVER Coming Soon**
 
 See also our [Terms of Service](terms).
