@@ -50,4 +50,4 @@ We may update these Terms from time to time. The latest version will always be p
 
 ## 9. Contact
 
-Questions about these Terms can be sent to: **[CONTACT — add an email address or support server invite]**
+Questions about these Terms can be sent to: **SERVER COMING SOON**
